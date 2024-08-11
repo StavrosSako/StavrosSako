@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @StavrosSako
-Im a 2nd year studen of electrical and computer engineering. I love getting to know more and more things and developing my skills and knowledge.
+Im a 4th year studen of electrical and computer engineering. I love getting to know more and more things and developing my skills and knowledge.
 
 
 
